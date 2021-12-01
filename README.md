@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Vitalija
+- 👋 Hi, I’m @Vitalija
 - 👀 I’m looking for software engineers who love to be challenged and work with smart responsible grown-ups to join the team at GLS eCom Lab
 - 📫 How to reach me vitalija.subota@gls-ecl.com
 
